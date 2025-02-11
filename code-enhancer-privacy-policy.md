@@ -1,6 +1,6 @@
 # Privacy Policy for Code Enhancer
 
-Last Updated: 2024-03-19
+Last Updated: 2025-02-11
 
 ## Introduction
 
